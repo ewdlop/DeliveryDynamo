@@ -1,0 +1,1 @@
+Acute frothy bloat in cattle should be treated with poloxalene, which may be administered as a drench or by gastric tube (25–50 g). Frothy bloat can be prevented by administering poloxalene as a top dressing to feed (1 g/45 kg, every 24 hours) or in a molasses block (1.5 g/45 kg, every 24 hours).
