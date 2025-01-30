@@ -29,3 +29,31 @@ https://www.dynamosoftware.com/blog/k-1-tax-form-preparation-how-investor-relati
 oh multiple github account?
 
 David is Sunny now. Okay.
+
+https://zh.wikipedia.org/wiki/%E5%8F%8D%E5%88%8D%E4%BA%9A%E7%9B%AE
+
+https://zh.wikipedia.org/wiki/%E6%9C%89%E8%A7%92%E4%B8%8B%E7%9B%AE
+
+https://zh.wikipedia.org/wiki/%E9%95%BF%E9%A2%88%E9%B9%BF%E7%A7%91
+
+https://zh.wikipedia.org/wiki/%E8%B6%8A%E5%8D%97%E9%BC%B7%E9%B9%BF
+
+https://zh.wikipedia.org/wiki/%E7%BB%9D%E7%81%AD
+
+https://zh.wikipedia.org/wiki/%E5%8E%AD%E6%B0%A7%E7%94%9F%E7%89%A9
+
+https://zh.wikipedia.org/wiki/%E8%91%A1%E8%90%84%E7%90%83%E8%8F%8C%E5%B1%9E
+
+https://zh.wikipedia.org/wiki/%E9%87%91%E9%BB%83%E8%89%B2%E8%91%A1%E8%90%84%E7%90%83%E8%8F%8C
+
+https://zh.wikipedia.org/wiki/%E8%9B%8B%E7%99%BD%E8%B3%AAA
+
+https://zh.wikipedia.org/wiki/%E6%8A%97%E4%BD%93
+
+https://zh.wikipedia.org/wiki/%E8%83%8E%E7%94%9F
+
+https://zh.wikipedia.org/wiki/%E5%8D%B5%E9%BB%83%E5%9B%8A
+
+https://zh.wikipedia.org/wiki/%E5%8E%9F%E8%85%B8
+
+
