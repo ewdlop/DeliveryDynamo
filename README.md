@@ -12,3 +12,4 @@ https://www.google.com/search?q=delivery+dynamo&sca_esv=158a6c7fa136afad&sxsrf=A
 https://docs.oracle.com/cd/E23095_01/Platform.93/ATGProgGuide/html/s1101dynamomessagesystem01.html
 
 DD
+\https://docs.oracle.com/cd/E23507_01/Platform.20073/ATGProgGuide/html/s0602subclassingdynamoformhandlers01.html
