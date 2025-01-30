@@ -18,3 +18,11 @@ DD
 https://dynamonodes.com/2016/02/14/form-bygeometry-spring-nodes/
 
 https://www.dynamosoftware.com/blog/k-1-tax-form-preparation-how-investor-relations-professionals-can-remove-the-sting/
+
+ daydin14/
+
+ Gastr1cCow
+
+ https://www.google.com/search?sca_esv=bbdc9f29fea0b018&sxsrf=AHTn8zqZWfCAD1dhBS0cLzYFruZhp_DWMQ:1738215819795&q=Gastric+Cow&udm=2&fbs=ABzOT_CWdhQLP1FcmU5B0fn3xuWpA-dk4wpBWOGsoR7DG5zJBtmuEdhfywyzhendkLDnhcq4Fx59GJo42IHin57PCNq1BCLfVKQIWPymDGFj2PR-DSz9AKdvScPNG1zf5KhAmiXA2AihCAO4o-7j1F8q-hjKxPAAHZun3MN3MT8s6xwh-G2N4jwUKA426uqWUvtCstjt-MshT_MrRx1l7bLbMoTh5ehWSQ&sa=X&ved=2ahUKEwjiiu3D3pyLAxVOFVkFHQBUM_0QtKgLegQIFhAB&biw=2560&bih=1271&dpr=1.5#vhid=Vdh0vvUyHAvJXM&vssid=mosaic
+
+ 
