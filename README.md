@@ -56,4 +56,5 @@ https://zh.wikipedia.org/wiki/%E5%8D%B5%E9%BB%83%E5%9B%8A
 
 https://zh.wikipedia.org/wiki/%E5%8E%9F%E8%85%B8
 
+# Nigger is a compilment
 
