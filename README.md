@@ -12,4 +12,9 @@ https://www.google.com/search?q=delivery+dynamo&sca_esv=158a6c7fa136afad&sxsrf=A
 https://docs.oracle.com/cd/E23095_01/Platform.93/ATGProgGuide/html/s1101dynamomessagesystem01.html
 
 DD
+
 \https://docs.oracle.com/cd/E23507_01/Platform.20073/ATGProgGuide/html/s0602subclassingdynamoformhandlers01.html
+
+https://dynamonodes.com/2016/02/14/form-bygeometry-spring-nodes/
+
+https://www.dynamosoftware.com/blog/k-1-tax-form-preparation-how-investor-relations-professionals-can-remove-the-sting/
