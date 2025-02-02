@@ -1,0 +1,1 @@
+A covert narcissist is someone with a personality disorder that causes them to have an inflated sense of self-importance, but who may appear shy or humble. They may also be manipulative, deceptive, and have a need for control. 
